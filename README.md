@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @AyOnEs04
+- 🌱 I’m currently learning ethical hacking by myself, I'm open for any one who wanna have a student.
